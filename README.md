@@ -1,0 +1,1 @@
+# Patika-BootsTrap-Odevleri
